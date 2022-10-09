@@ -1,0 +1,3 @@
+- Hi, I'm Ferhat Arda Ersoy
+- Working as a Planning Specialist at Webhelp Turkey
+- I'm interested in Coding, Computer Hardwares and mostly Gaming :)
